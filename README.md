@@ -41,7 +41,3 @@ Calvin Klein - 2008
  ## Hobbies
 I love traveling to discover new cultures, reading (both novels, biographies and personal development books), spending time with my friends and family. 
 I have always been passionate about computers.
- ### Resume PRAK Pauline
- #### Resume PRAK Pauline
- ##### Resume PRAK Pauline
- ###### Resume PRAK Pauline 
