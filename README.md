@@ -1,6 +1,6 @@
  # **Resume PRAK Pauline**
  ## Presentation
-Currently training at the Wild Code School (Paris), I am following TSSR training for 5 months. 
+Currently training at the [Wild Code School](https://www.wildcodeschool.com/fr-fr/formation-technicien-systemes-et-reseaux), I am following TSSR training for 5 months. 
 I am looking for a one and a half month internship starting in August 2025. 
  
  ## Formation
