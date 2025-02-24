@@ -28,6 +28,8 @@ Women leather goods
 
 - __2008 - 2013 :__ Sales Associate - _Paris_  
 Diesel - 2011/2013  
+![Diesel's logo.](https://github.com/ppauline25/pictures/blob/5a93daee90acba1037f2acaceb40cba51825f0f2/Diesel%20logo.jpg)     
+
 Miss Sixty - 2010/2011  
 Ralph Lauren - 2009-2010  
 Calvin Klein - 2008  
