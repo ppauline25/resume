@@ -14,7 +14,7 @@ I am looking for a one and a half month internship starting in August 2025.
  
 - __2022 - Now :__ Multi-site Shop Manager - _Paris_  
 BHV Le Marais (women leather goods and shoes division)  
-Galeries Lafayette Champs-Elysées (pop-up store men and women leather goods/shoes/ready-to-wear on July 2023, then open shop woman leather good division in October 2023)   
+Galeries Lafayette Champs-Elysées (pop-up store men and women leather goods/shoes/ready-to-wear in July 2023, then open shop woman leather good division in October 2023)   
 Galeries Lafayette Beaugrenelle (shop woman leather goods)
 ![MK's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/MK.png)
 
