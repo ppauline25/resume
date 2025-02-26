@@ -39,5 +39,5 @@ Calvin Klein - 2008
 
    
  ## Hobbies
-I love traveling to discover new cultures, reading (both novels, biographies and personal development books), spending time with my friends and family. 
+I love traveling to discover new cultures, reading (both novels, biographies and personal development books) and cooking. 
 I have always been passionate about computers.
