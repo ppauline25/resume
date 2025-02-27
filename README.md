@@ -28,7 +28,7 @@ Women leather goods and shoes
 Women leather goods
 
 - __2008 - 2013 :__ Sales Associate - _Paris_  
-Diesel - 2011/2013  
+Diesel - 2011/2013
 ![Diesel's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/Diesel.png)  
 Miss Sixty - 2010/2011
 ![Miss sixty's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/Miss%20sixty.png)
