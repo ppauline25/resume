@@ -15,8 +15,8 @@ I am looking for a one and a half month internship starting in August 2025.
 - __2022 - Now :__ Multi-site Shop Manager - _Paris_  
 BHV Le Marais (women leather goods and shoes division)  
 Galeries Lafayette Champs-Elysées (pop-up store men and women leather goods/shoes/ready-to-wear in July 2023, then open shop woman leather good division in October 2023)   
-Galeries Lafayette Beaugrenelle (shop woman leather goods)
-![MK's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/MK.png)
+Galeries Lafayette Beaugrenelle (shop woman leather goods)  
+![ck's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/CK.png)
 
 - __2021 - 2022 :__ Shop Manager Flagship - _Printemps Haussmann - Paris_  
 Women leather goods and shoes 
@@ -28,16 +28,12 @@ Women leather goods and shoes
 Women leather goods
 
 - __2008 - 2013 :__ Sales Associate - _Paris_  
-Diesel - 2011/2013
-![Diesel's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/Diesel.png)  
-Miss Sixty - 2010/2011
-![Miss sixty's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/Miss%20sixty.png)
-Ralph Lauren - 2009-2010  
-![Ralph's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/Ralph.png)  
-Calvin Klein - 2008
-![ck's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/CK.png)
+Diesel - 2011/2013 - _Galeries Lafayette Haussmann_
+Miss Sixty - 2010/2011 - _Flagship Etienne Marcel_
+Ralph Lauren - 2009-2010 - _Printemps Haussmann_
+Calvin Klein - 2008 - _Galeries Lafayette Haussmann_
 
    
  ## Hobbies
 I love traveling to discover new cultures, reading (both novels, biographies and personal development books) and cooking. 
-I have always been passionate about computers.
+I have always been passionate about computers and new technologies.
