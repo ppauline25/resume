@@ -16,7 +16,7 @@ I am looking for a one and a half month internship starting in August 2025.
 BHV Le Marais (women leather goods and shoes division)  
 Galeries Lafayette Champs-Elysées (pop-up store men and women leather goods/shoes/ready-to-wear in July 2023, then open shop woman leather good division in October 2023)   
 Galeries Lafayette Beaugrenelle (shop woman leather goods)  
-![ck's logo.](https://github.com/ppauline25/pictures/blob/4a71f67df75f42c3f786349c6886bbb025747ce4/CK.png)
+![MK logo.](https://github.com/ppauline25/resume/blob/e79b076785c8547197d47e3cb9213091eaa74683/MK%20logo.jpg)
 
 - __2021 - 2022 :__ Shop Manager Flagship - _Printemps Haussmann - Paris_  
 Women leather goods and shoes 
