@@ -28,10 +28,10 @@ Women leather goods and shoes
 Women leather goods
 
 - __2008 - 2013 :__ Sales Associate - _Paris_  
-Diesel - 2011/2013 - _Galeries Lafayette Haussmann_
-Miss Sixty - 2010/2011 - _Flagship Etienne Marcel_
-Ralph Lauren - 2009-2010 - _Printemps Haussmann_
-Calvin Klein - 2008 - _Galeries Lafayette Haussmann_
+Diesel - 2011/2013 - _Galeries Lafayette Haussmann_  
+Miss Sixty - 2010/2011 - _Flagship Etienne Marcel_  
+Ralph Lauren - 2009-2010 - _Printemps Haussmann_   
+Calvin Klein - 2008 - _Galeries Lafayette Haussmann_  
 
    
  ## Hobbies
